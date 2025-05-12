@@ -8,14 +8,15 @@
 <body>
 hello my name is laz , im trying to understand what i need to do to get this up
 and running yo 
+
 </body>
-    
+
+<body>
     <h1>welcome</h1>
     
     <p>this is my new website</p>
 
 </body>
-
 <iframe width="560" height="315" src="https://www.youtube.com/embed/svErjcOc3A0?si=1PmQuYhqq_l1lHU3"
     title="YouTube video player" frameborder="0"
     allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"
