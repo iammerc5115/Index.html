@@ -9,3 +9,5 @@ folders then use the read me file for future website ideas.
 
 
 empty website template: !TAB
+
+folders for storage of albums
