@@ -35,3 +35,32 @@ F S sn s snsnsnsnsm D.x. .
 X जेएसडीएम JSDMDD डी Dksnkdmdoendjd dndendm 
 D D D Kz 
 D D 
+.z.z.
+z. zmzmmnz x x.x
+x
+x.
+z
+z
+
+ z  z 
+ ..
+
+x
+ z  XM XMX I KEPT FIGHTING FOR YOU IN A CLOWN ON XX Z
+Z
+Z
+ZM ZNZ ..MXKF  F DMSMSMS.DMZ I KEPT FIGHTING FOR TGE STUFF I F NF.F.D
+Fmd.s  sn sk sllnsksnk I  nxnxmm.s
+s
+
+s
+dkz zk I knew   nskndmm mxmmxmz
+x
+d
+m Dx as you know xx nz z.
+s
+sm.vaGd d.Bd.f.s..
+g
+c sn I gotta know money 💰 🤑 💸 🤧 d.d.d
+d
+d
