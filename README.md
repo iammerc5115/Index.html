@@ -12,7 +12,15 @@ empty website template: !TAB
 
 folders for storage of albums
 be.
-s
+snx.
+ s
+
+d
+dmdm.melsm.lxmdl
+
+
+mdm..mmdmm.jdjz z
+
 slsm
 ddmdnd m
 Rkmmmtk. is. Mddndm Dnf.f Fmf F F Dmxmx.x F F F Fmxx X xmx 
@@ -23,11 +31,17 @@ D Xmxmxkx V .cmx.x X M . Mx. Cn m v Cm cx x.x C mx cc xd xnx xn cnxc nxc C Mfmfm
 C.fmx.d sk D D D 
 Dmdmfmvkc.mv Vmv.mc Gm.gmv.cmc x ,,>["]:.: V 
 
-Xc C X 
+Xc C Xkxmmmdm.zmnxk
+x
+xo 
+ 
+
+
 Cmc xmx C Kx.x Xkxmxm.vkv .nd 
 F F Md D Dmdmdkd. 
 D D Xmv F 
-Mnskd.d Dfmdmd fm Msmd 
+Mnskd.dkxj
+xDfmdmd fm Msmd 
 Dxmmfmxmdbzz xnx X Xmx >]'pd.f F X X 
 >[]'pxf 
 F F S.s d D 
