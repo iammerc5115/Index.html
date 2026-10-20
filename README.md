@@ -1,17 +1,27 @@
 # My-First-Website
 YO
 whats up bro , lets take all the code
-we can find on youtube and then
-move it to the folders within the readme 
-start scanning and then save the files to the respected 
-folders then use the read me file for future website ideas.
+we mos.z
+zzn , . x
+xjxmc
+c can find on youtube and then
+move it tonkkd z
+-(".
+  the folders within the readme 
+start scannlkk3ndosz
+lfmming and then save the files to the respected 
+folders then use the read me file for future website ideas.[?÷[$.zj
 
-
+mo3odmd.
+xlm
 
 empty website template: !TAB
 
 folders for storage of albums
-be.
+be...dksmwme
+eld.xmx
+
+$[.
 snx.
  s
 
